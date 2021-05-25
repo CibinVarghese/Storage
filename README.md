@@ -1,1 +1,1 @@
-Welcome to my Storage Journy
+Welcome to my Storage Journey
